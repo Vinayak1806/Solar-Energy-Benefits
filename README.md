@@ -1,2 +1,1 @@
-# -Solar-Energy-Benefits-to-Reduce-the-Effects-of-Pollution-
-----
+## Solar Energy Benefits to Reduce the Effects of Pollution <hr>
